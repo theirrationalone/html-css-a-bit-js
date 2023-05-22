@@ -6,4 +6,4 @@ Just for fun sake 😁
 
 clone it -> index.html (double click) -> booooom 💥
 
-Thank You.
+Thank You .^.
